@@ -1,1 +1,1 @@
-# dhruv2497-India-General-Election-Result-Analysis-2024
+# India-General-Election-Result-Analysis-2024
